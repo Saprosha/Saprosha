@@ -5,7 +5,8 @@ Computer science teacher, head of the children's technology park Quantorium. I k
 
 * 🌍  I'm based in Kursk, Russian Federation
 * ✉️  You can contact me at [mufanf@yandex.ru](mailto:mufanf@yandex.ru)
-* :mortar_board:I have two higher educations: mathematician-programmer and lawyer-criminologist
+* :iphone:  https://vk.com/endorfin46
+* :mortar_board: I have two higher educations: mathematician-programmer and lawyer-criminologist
 * 🧠  I'm learning Data Sciense and Python
 * :family:  A cheerful husband and loving father. I love football, playing PS4, board games and watching thrillers
 
